@@ -1,3 +1,3 @@
-oh Gloria inmarcesible, oh jubilo inmortal
+En un lugar de la mancha cuyo nombre no quiero acordarme
 
 
